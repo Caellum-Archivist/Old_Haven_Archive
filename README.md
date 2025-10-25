@@ -82,3 +82,10 @@ Initial commit. The Protocol Sequence remains in the ancient pattern:
 
 
 54.21.08.97.
+
+
+My mind wont let me rest 
+Maybe I am truly at fault here 
+v1.2.90210. This is messy, like the old town
+
+Visit before they get tO you
